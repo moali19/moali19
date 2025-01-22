@@ -6,6 +6,6 @@
 
 💞️ I’m looking to collaborate on exciting open-source projects, especially those with a positive social impact. Let’s code something cool!
 
-📫 How to reach me: Drop me a message here or hit me up on www.linkedin.com/in/mohammedali03 Always happy to chat!
+📫 How to reach me: Drop me a messaage on my LinkedIn, Always happy to chat!
 
 Fun fact: When I’m not coding, I’m probably playing football, travelling, or brainstorming my next project. 🌍⚽💻
